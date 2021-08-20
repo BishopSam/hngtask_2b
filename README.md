@@ -1,6 +1,10 @@
 
 
-https://user-images.githubusercontent.com/59648161/130185488-ce92b778-6f58-40c7-b454-d541254e6664.mp4
+
+
+https://user-images.githubusercontent.com/59648161/130188571-01b840bd-6469-4331-b0e3-65898ce40bed.mp4
+
+
 
 # hngtask_2b
 
